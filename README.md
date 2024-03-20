@@ -1,6 +1,6 @@
 # 快乐星球one官网地址
 
-最新地址：[djgskc.top](https://klxqbak.djgskc.top/#/register?code=F5MwNLoE)
+最新地址：[djgskc.top](https://node1.klxqyyds.top/#/register?code=F5MwNLoE)
 
 ## 快乐星球one介绍
 
